@@ -1,0 +1,1 @@
+- ♡ she/her | virgo | intp-t
